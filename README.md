@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Vyrinz
+- 👀 yo blake dont steal my stuff bro
+- 
+- 🌱 I’m currently learning python
